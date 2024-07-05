@@ -19,7 +19,7 @@ En este re positorio encontraras proyectos  que te mostraran mis conocimientos y
 
  🫵 La Practica hace al maestro
 
- Contactame  ami correo alissonavalos@gmail.com
+ Contactame  a mi correo alissonavalos@gmail.com
 
  
  
